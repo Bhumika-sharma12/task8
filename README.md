@@ -50,3 +50,6 @@ Focus on Central & South Regions: Investigate reasons for underperformance and l
 Invest in Technology Category: It shows strong sales potential — consider bundling or cross-selling with other categories.
 
 Monitor Profitability: While sales are strong, the profit margin could be improved by controlling costs or focusing on higher-margin products.
+
+![Screenshot 2025-05-02 144554](https://github.com/user-attachments/assets/305bfc8f-ad09-4efa-8578-3a8d5f1342dd)
+
